@@ -1,0 +1,2 @@
+# mezuniyet
+iklim değişikliği
